@@ -1,1 +1,1 @@
-# prima25.github.io.
+# prima25.github.io
